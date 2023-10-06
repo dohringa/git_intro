@@ -1,1 +1,2 @@
 Amanda Dohring
+dohringa@oregonstate.edu
